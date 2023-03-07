@@ -1,1 +1,1 @@
-# baguspradita12-I0322022_Bagus-Pradita_praktikum-Prokom
+# I0322022_Bagus-Pradita_praktikum-Prokom
